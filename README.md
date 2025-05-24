@@ -1,4 +1,4 @@
-# DRAGON-BALL-XENOVERSE-2-Free-Downlaod-For-PC-2025-
+# DRAGON-BALL-XENOVERSE-2-Free-Downlaod-For-PC-2025
 
 يمكنك تنزيل لعبة DRAGON BALL XENOVERSE 2 للكمبيوتر الشخصي من خلال منصات موثوقة مثل Steam أو Epic Games Store، حيث تكون متاحة للشراء، ولكنها قد تُعرض مجانًا في بعض الأوقات خلال العروض الترويجية.
 ⚠️ تنبيه:
